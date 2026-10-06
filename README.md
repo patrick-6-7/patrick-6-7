@@ -29,7 +29,7 @@ For a complete overview of my professional experience, please view my [resume](h
 
 ### Bachelor of Technology in Computer Science and Engineering
 
-**Bennett University · 2026**
+**Bennett University · 2022 - 2026**
 
 ## Technical skills
 
